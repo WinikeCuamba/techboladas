@@ -3,6 +3,6 @@ We are techboladas a service company about technology.
 
 ## For more about
 call for: 
-- [techboladas@gmail.com]email
+- email techboladas@gmail.com
 - whatsapp 872204494
   
